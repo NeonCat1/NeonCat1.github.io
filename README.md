@@ -1,3 +1,4 @@
 # NeonCat1.github.io
 
-![Untitled-1](https://github.com/user-attachments/assets/90e6b271-04b9-48e7-a510-dd4cfdca2a67)
+
+![Untitled-3potato](https://github.com/user-attachments/assets/d6a69094-55aa-4d5d-a06c-cfee4eccaa7d)
